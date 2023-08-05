@@ -1,1 +1,0 @@
-# kurdishlearning.github.io
